@@ -1,2 +1,3 @@
 # Joker
-bomber-sms
+reza Joker the creator Joker and ²unix 
+LR sheriff 
